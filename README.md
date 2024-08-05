@@ -1,1 +1,0 @@
-# ninjaprime0520.github.io
